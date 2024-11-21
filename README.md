@@ -37,7 +37,7 @@
 
 - 🌐 [GitHub Profile](https://github.com/Deepan1413)
 - 💼 [LinkedIn Profile](https://www.linkedin.com/in/)
-- ✉️ **Email:** deepanwolfy8@gmail.com
+- ✉️ **Email:** deepan14132002@gmail.com
 
 ## 💡 Fun Fact
 
